@@ -12,7 +12,7 @@ All the certificates earned from Google, Microsoft, NASA, Research and many more
 
 ![Screenshot (43)](https://user-images.githubusercontent.com/39979024/65828525-64d4b700-e2b9-11e9-8eb3-db33f13bf948.png)
 
-**This are Last year certificates, as concepts and Logics in google are updates. Expire date is allocated for certificates**
+**This are Last year certificates, as concepts and Logics in the google algorithm are updated.The Expire date is allocated for certificates**
 
 ![Screenshot (44)](https://user-images.githubusercontent.com/39979024/65828527-67371100-e2b9-11e9-815b-6cf8c5745465.png)
 
