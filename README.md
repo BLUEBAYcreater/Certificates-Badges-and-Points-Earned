@@ -17,4 +17,6 @@ All the certificates earned from Google, Microsoft, NASA, Research and many more
 ![Screenshot (44)](https://user-images.githubusercontent.com/39979024/65828527-67371100-e2b9-11e9-815b-6cf8c5745465.png)
 
 
+**Certificate earned from Template Monster Verification**
 
+![Screenshot (46)](https://user-images.githubusercontent.com/39979024/65828769-22f94000-e2bc-11e9-8b3a-df95aadd3ffa.png)
