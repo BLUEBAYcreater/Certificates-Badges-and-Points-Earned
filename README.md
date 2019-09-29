@@ -30,4 +30,4 @@ All the certificates earned from Google, Microsoft, NASA, Research and many more
 ![Screenshot (50)](https://user-images.githubusercontent.com/39979024/65828881-63a58900-e2bd-11e9-895b-115f39a1b602.png)
 
 
-[https://www.emarketinginstitute.org/certificate/seo-certification-and-course-free-yeshwanth/](url)
+
