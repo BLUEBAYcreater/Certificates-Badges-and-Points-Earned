@@ -29,5 +29,10 @@ All the certificates earned from Google, Microsoft, NASA, Research and many more
 **Microsoft Certificates**
 ![Screenshot (50)](https://user-images.githubusercontent.com/39979024/65828881-63a58900-e2bd-11e9-895b-115f39a1b602.png)
 
+**Google Analytics Certificates Proof**
+
+![Screenshot (51)](https://user-images.githubusercontent.com/39979024/65829083-1cb89300-e2bf-11e9-924d-dbbf583c50b0.png)
+
+
 
 
