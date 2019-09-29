@@ -20,3 +20,11 @@ All the certificates earned from Google, Microsoft, NASA, Research and many more
 **Certificate earned from Template Monster Verification**
 
 ![Screenshot (46)](https://user-images.githubusercontent.com/39979024/65828769-22f94000-e2bc-11e9-8b3a-df95aadd3ffa.png)
+
+
+**Total number of badges earned by Microsoft in Skills of Aptitude and Computation**
+![Screenshot (49)](https://user-images.githubusercontent.com/39979024/65828868-47095100-e2bd-11e9-942d-c8f7802803f5.png)
+
+
+**Microsoft Certificates**
+![Screenshot (50)](https://user-images.githubusercontent.com/39979024/65828881-63a58900-e2bd-11e9-895b-115f39a1b602.png)
