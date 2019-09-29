@@ -3,7 +3,7 @@ All the certificates earned from Google, Microsoft, NASA, Research and many more
 
 **For the confirmation that it is provided by Respective Companies, here are the links to them **
 
-**GOOGLE**
+**GOOGLE HAS AWARDED ME 10 CERTIFICATES FOR TAKING EXAMS IN ADWORDS AND WEB DESIGNING**
 
 **Account verification**
 ![Screenshot (42)](https://user-images.githubusercontent.com/39979024/65828521-630af380-e2b9-11e9-9b0b-f92a80e56142.png)
