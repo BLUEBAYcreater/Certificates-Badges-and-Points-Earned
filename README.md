@@ -34,5 +34,10 @@ All the certificates earned from Google, Microsoft, NASA, Research and many more
 ![Screenshot (51)](https://user-images.githubusercontent.com/39979024/65829083-1cb89300-e2bf-11e9-924d-dbbf583c50b0.png)
 
 
+**Intel Certificate proof**
+
+
+![Screenshot (58)](https://user-images.githubusercontent.com/39979024/66370852-39d81a80-e9bf-11e9-86f6-ec98eaa78256.png)
+
 
 
